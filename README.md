@@ -1,0 +1,2 @@
+# jnanaparimalaacademy
+jnanaparimalaacademy
